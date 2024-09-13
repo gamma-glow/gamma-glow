@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @gamma-glow, official-name : Aditya Patel
 - 👀 I’m an tech enthusiast.
-- 🌱 I like to deep dive the things.
-- 💞️ I like to leran new things.
+- 🌱 I like to deep dive the tech stuffs.
 - 📫 How to reach me -aditya2357patel@gmail.com(9305535051)
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
